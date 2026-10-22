@@ -1,0 +1,1 @@
+# Analiza-Wynikow-Sprzedazowych-Power-BI
